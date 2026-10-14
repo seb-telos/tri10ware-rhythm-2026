@@ -1,2 +1,1 @@
-"# tri10ware-rhythm-2026" 
-"# tri10ware-rhythm-2026" 
+currently: dont read this. The game doesnt exist yet 
